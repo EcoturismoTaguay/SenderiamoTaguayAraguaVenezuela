@@ -1,2 +1,2 @@
-# Senderos
-senderismo en taguay Aragua Venezela
+# Senderos Taguay Aragua Venezuela
+Senderismo en taguay Aragua Venezela
